@@ -1,0 +1,1 @@
+# capfc-app-privacy-policy
